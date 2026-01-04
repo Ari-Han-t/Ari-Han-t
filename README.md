@@ -36,8 +36,8 @@
 
 ## 📫 Let’s Connect
 - GitHub: https://github.com/Ari-Han-t
-- LinkedIn: *(add link here)*
-- Email: *(add email here)*
+- LinkedIn: www.linkedin.com/in/arihant-gupta22
+- Email: arihantgupta0023@gmail.com
 
 ---
 
